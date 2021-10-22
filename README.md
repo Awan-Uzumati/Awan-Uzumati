@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Awan-Uzumati
-- Joined 10/21/21
+- Anime
 - I'm just here
 - Astronomy 
 - https://instagram.com/awan_dakota?utm_medium=copy_link
